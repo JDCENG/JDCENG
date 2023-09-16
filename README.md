@@ -1,4 +1,18 @@
-### Hi there 👋
+# Education
+
+## Nat 5
+
+## Higher
+
+## Advanced Higher
+
+## HNC
+
+# School Achievements
+
+# Sports Achievements
+
+# Charity/Volunteering
 
 <!--
 **JDCENG/JDCENG** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
